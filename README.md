@@ -1,8 +1,7 @@
 <div align="center">
 
-![hs](https://file.garden/aWda6_hwaGcNwjuj/Untitled123_20260421021301.png)
-![u](https://file.garden/aWda6_hwaGcNwjuj/Untitled137_20260507132052.png)
-![i](https://file.garden/aWda6_hwaGcNwjuj/Untitled124_20260421021251.png)
+![hs](https://file.garden/aWda6_hwaGcNwjuj/Untitled129_20260507132623.png)
+
 </div>
 
 <!--
