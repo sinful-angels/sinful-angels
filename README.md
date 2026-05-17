@@ -1,6 +1,6 @@
 <div align="center">
 
-![hs](https://file.garden/aWda6_hwaGcNwjuj/Untitled144_20260517034211.png)
+![hs](https://file.garden/aWda6_hwaGcNwjuj/Untitled143_20260517034439.png)
 
 <sub> 𝘒𝘪𝘴𝘴 𝘮𝘦 𝘺𝘰𝘶 𝘢𝘯𝘪𝘮𝘢𝘭 </sub>
 </div>
