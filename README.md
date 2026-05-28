@@ -1,6 +1,6 @@
 <div align="center">
 
-![hs](https://file.garden/aWda6_hwaGcNwjuj/Untitled152_20260523231956.png)
+![hs](https://files.catbox.moe/we1t9b.png)
 
 <sub> Life & death will always </sub>
 
